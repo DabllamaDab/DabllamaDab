@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @DabllamaDab
+- 👀 I’m interested in pyrotechnic engineering
+- 🌱 I’m currently learning coding firework triggers
+- 😄 Pronouns: He/them
+- ⚡ Fun fact: My favorite holiday is 4th of july!
